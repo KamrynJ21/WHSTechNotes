@@ -32,4 +32,4 @@ I had a massive brain block, I couldn't find any sounds I enjoyed and wanted to 
 
 # September 10th, 2024
 
-For the first part of class we as a class created our journals. 
+We created our journals as a class.
