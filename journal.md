@@ -5,3 +5,7 @@ Sorry, I didn't know I still had to complete the journal because I was doing dif
 # September 10th, 2024
 
 I felt like you explained the journal process good, I was able to easily make a new one even though it's been a while. I didn't enocunter any problems
+
+# September 18th, 2024
+
+This is a free week.
