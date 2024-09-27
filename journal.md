@@ -9,3 +9,7 @@ I felt like you explained the journal process good, I was able to easily make a 
 # September 16th, 2024
 
 This is a free week.
+
+# September 23rd, 2024
+
+In coding following instructions to the T is very important because if you mess up at a certain step whether it's mispelling or completely messing up, it will cause the whole program to break and not work at all. For example, when I'm coding my beats and I'm trying to set the effects for the track if I type seteffect instead of setEffect it will cause the program to completely misunderstand what I was trying to say. This shows that even a capital letter at the wrong spot can ruin everything, following instructions especially in coding is incredibly important if you want the code to do what it's intended.
