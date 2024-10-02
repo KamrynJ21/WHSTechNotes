@@ -13,3 +13,7 @@ This is a free week.
 # September 23rd, 2024
 
 In coding following instructions to the T is very important because if you mess up at a certain step whether it's mispelling or completely messing up, it will cause the whole program to break and not work at all. For example, when I'm coding my beats and I'm trying to set the effects for the track if I type seteffect instead of setEffect it will cause the program to completely misunderstand what I was trying to say. This shows that even a capital letter at the wrong spot can ruin everything, following instructions especially in coding is incredibly important if you want the code to do what it's intended.
+
+# September 30th, 2024
+
+I use computer science indirectly on a day to day basis, whether that's playing on my playstation, watching a tv show, or even listening to music. It's all apart of a program made to satisfy our needs, but on the other side things like the internet or credit and debit cards are also computer science, it allows us to have a easier lifestyle day by day. Computer Science impacts me in many various ways and are probably being used even more in my life and I just don't know it yet. Without Computer Science life would be drastically harder and more boring because our information and ease of access would be reduced significantly but also most of our entertainment would be taken away.
