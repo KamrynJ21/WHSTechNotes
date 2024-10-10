@@ -17,3 +17,7 @@ In coding following instructions to the T is very important because if you mess 
 # September 30th, 2024
 
 I use computer science indirectly on a day to day basis, whether that's playing on my playstation, watching a tv show, or even listening to music. It's all apart of a program made to satisfy our needs, but on the other side things like the internet or credit and debit cards are also computer science, it allows us to have a easier lifestyle day by day. Computer Science impacts me in many various ways and are probably being used even more in my life and I just don't know it yet. Without Computer Science life would be drastically harder and more boring because our information and ease of access would be reduced significantly but also most of our entertainment would be taken away.
+
+# October 10th, 2024
+
+The career job I researched is audio engineering for music. The responsibilities of an audio engineer is to capture, mix, or reproduce sound using electronic audio equipment mainly for music. To become an audio engineer you need to usually possess a bachelor's degree, master's degree or higher qualification in acoustics, physics, computer science or another form of engineering. With experience and enough skill you could have clients who are famous rappers like metro booming or work the audio in prestiigious plays and many more. I believe in God and I believe he's called me to make music and learning to be an audio engineer would be very helpful on my path.
