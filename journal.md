@@ -29,3 +29,7 @@ Why can knowing how to code improve our problem solving skills, it's a simple an
 # October 21st, 2024
 
 AI is very important to today's society because it makes our day to day life more effiecient, convinent, and easier. For example using the gps to tell you where the best route is and how to avoid traffic are all able because of AI's and makes our lives for one much easier. But on the other side unemployment is rising because many jobs are being taken away because of these Ai's. For example, we no longer need people on the phone when we're calling the bank because they have Ai's to do that for us. While this may seem good at first we need to also realize that many can't make a living because we're giving their jobs to a machine.
+
+# October 28th, 2024
+
+A positive impact new technology has on the election process is that it makes the entire process more effiecient. Now that you can vote with machines there's less likely gonna be miscounts or it being rigged because it's all automated, along with this it's more efficient process getting you in and out and back to your daily life. But a negative impact is, it's still possible for it to be hacked and rigged from an outside source. Someone who is very smart and has the means to do so could completely shut down the election and no one could do anything about it.
