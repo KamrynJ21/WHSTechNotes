@@ -49,3 +49,7 @@ Technology has allowed humanity to become more effiecient in the way we produce 
 # December 2nd, 2024
 
 I researched the production of humanoid AI robots and they are being produced and tested in Norway to try to create robots to help people around the house. But they are also releasing robots into stadiums and arenas to see if other people would notice them or just see them as humans. Me personally I believe this is dangerous, experimenting with AI humanoid robots and believe nothing good can come out of this. I prefer if the people around the world would take a step back from this project because as we've seen in the movies, things could go wrong in a split of a second. 
+
+# December 9th, 2024
+
+To me the term brain rot is a annoying trend going around the internet currently, using combination of words that doesn't make sense to try to make a joke. Social Media has had both positive and negative impact on my mental health this year. Somethings I see like basketball or good christian content and music bring me joy. But on the other side there are many terrible things being posted onto social media that only sow negativety but I've had more of a positive than negative impact from social media this year. Some new words and trends I really enjoy but a lot of times I feel society tries to force us to like or hate something even if our personal feelings go against it. Technology can impact you both positive and negatively but it's only what you allow to.
