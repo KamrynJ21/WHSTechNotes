@@ -57,3 +57,7 @@ To me the term brain rot is a annoying trend going around the internet currently
 # December 16th, 2024
 
 Yes I'm excited to get my much needed rest.
+
+# January 8th, 2025
+
+I enjoyed the personal project it was cool to do something new, even though it was stressing me out. I don't really have anything specific I would like to work on, just trying different things to see what I would do in my future. And I have no certifications I would like to pursue as a future in this subject.
