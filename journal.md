@@ -61,3 +61,7 @@ Yes I'm excited to get my much needed rest.
 # January 8th, 2025
 
 I enjoyed the personal project it was cool to do something new, even though it was stressing me out. I don't really have anything specific I would like to work on, just trying different things to see what I would do in my future. And I have no certifications I would like to pursue as a future in this subject.
+
+# January 13th, 2025
+
+I don't like the shift society is taking into a Ai dominated era. I believe it's dangerous and harmful for humanity, it will in my opinion, reduce job opportunities and limit jobs significantly by making Ai control most of it. Now Ai does have some features that are very beneficial and great for humanity like the gps but others like ChatGPT or extreme automation in services will be harmful in the long run, as well as the deep fake technology being rapidly improved in society will eventually make us doubt everything because we don't know what it actually real. For me in this job changing society I'm going to branch off and do my own thing and pursue music, I'm gonna succeed or die trying.
