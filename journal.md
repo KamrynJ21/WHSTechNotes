@@ -69,3 +69,12 @@ I don't like the shift society is taking into a Ai dominated era. I believe it's
 # January 22nd, 2025
 
 Government intervention on technology can have both a positive and negative impact on society. A positive being if its something that harms the society like adult websites, shutting them down would be beneficial for society but it can also have a negative impact if they remove something or change something that doesn't harm society as a whole. Tiktok needs to figure out a way or prevent the leaking of information while using their website in order for something like this to not happen again in the future. If Tiktok doesn't address this now the government might intervene again to put out another ban in order to protect our information. To increase user privacy a feature I would add would put some type of incryption to make it significantly harder for people to steal data to protect users data privacy. Another feature I would add is some type of vpn already incrypted into the app again to try to stop the stealing of data all together. A lesson I can take away from this situation is the importance of protecting the users data because if you slack on it or straight up ignore it, it can be not only harmful for the users but also harmful for the company and in the worst situation shut it down.
+
+# January 27th, 2025
+
+| Name      | Car | Mistake     |
+| :---        |    :----:   |          ---: |
+| Jimmy      | Honda Civic       | Drilled Hole Into Gas Tank  |
+| Kayla   | GMC Sierra        | 	Fixed Wrong Problem    |
+|Bart | Toyota Corolla | Left Stains On Carpet |
+|Harrison | Subaru Forester| Left The Oil Cap Off |
