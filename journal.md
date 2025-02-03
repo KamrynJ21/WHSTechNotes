@@ -78,3 +78,7 @@ Government intervention on technology can have both a positive and negative impa
 | Kayla   | GMC Sierra        | 	Fixed Wrong Problem    |
 |Bart | Toyota Corolla | Left Stains On Carpet |
 |Harrison | Subaru Forester| Left The Oil Cap Off |
+
+# February 3rd, 2025
+
+I feel like the most important thing the aviation needs right now is uninterruptable communication with everyone in that sky area. The reason in my opinion that both crashes occured was because of a miscommunication between both fliers. If we can create some type of technology that can provide clear uninterruptable communication I feel accidents like these will be significantly reduced. Alongside this we need active observations of the coding that goes on in the aircrafts and outside of the aircrafts. There is error in computers even in a perfected program but I feel if we have a group of people constantly observing and fixing errors as they occur again accidents will be significantly reduced. All in all, uninterruptable communication paired with constant human observation will improve aircraft safety. I don't think it's a technological advancement problem I feel it's because we aren't advancing what we have to make it improved to the max before we try to "upgrade" it.
