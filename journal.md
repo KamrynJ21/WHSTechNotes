@@ -92,3 +92,7 @@ I feel like the most important thing the aviation needs right now is uninterrupt
 | Hexagon | Brown | 6 |
 | Triangle | Purple | 4 |
 | Octogon | Red | 3 |
+
+# February 18, 2025
+
+Last week I learned that many movies that survive a trilogy fail at the fourth movie. For example Alvin and the Chipmunks, Hotel Transilvania, Kung Fu Panda, etc. All of these movie had a phenomenol triology but when the fourth movie was created it wasn't as good as the previous, not saying it's the worst thing ever created but it's mid. It doesn't suck your heart and mind in as the previous ones and it makes me think is there more pressure for the fourth movie to succeed than the trilogy which is why it flops?
