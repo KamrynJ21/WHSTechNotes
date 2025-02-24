@@ -93,6 +93,10 @@ I feel like the most important thing the aviation needs right now is uninterrupt
 | Triangle | Purple | 4 |
 | Octogon | Red | 3 |
 
-# February 18, 2025
+# February 18th, 2025
 
 Last week I learned that many movies that survive a trilogy fail at the fourth movie. For example Alvin and the Chipmunks, Hotel Transilvania, Kung Fu Panda, etc. All of these movie had a phenomenol triology but when the fourth movie was created it wasn't as good as the previous, not saying it's the worst thing ever created but it's mid. It doesn't suck your heart and mind in as the previous ones and it makes me think is there more pressure for the fourth movie to succeed than the trilogy which is why it flops?
+
+# February 24th, 2025
+
+Technology could allow the language barriers of this and future generations to be closed allowing for deeper connections for every person. New innovations of technology like urban dictionary allows a person to easily learn and understand what the new words mean. If teachers, chatbots, and ai incorporate the new slang into their teaching it could allow for students to learn easier and understand easier because they use words that are close to them. I believe slang should be used yes, but left informal as something that we create not something that we have to learn. If schools changed slang into something that should be learned like a class it ruins the whole purpose of it. But I do feel teachers should learn the new generations slang to destroy misunderstandings and instead grow with their students more closely allowing the classrooms to feel like home instead of a boring learning environment. All in all, appropriate slang could be used to move students and society forward with the new generation if they take the time to learn and understand it.
