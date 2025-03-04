@@ -100,3 +100,13 @@ Last week I learned that many movies that survive a trilogy fail at the fourth m
 # February 24th, 2025
 
 Technology could allow the language barriers of this and future generations to be closed allowing for deeper connections for every person. New innovations of technology like urban dictionary allows a person to easily learn and understand what the new words mean. If teachers, chatbots, and ai incorporate the new slang into their teaching it could allow for students to learn easier and understand easier because they use words that are close to them. I believe slang should be used yes, but left informal as something that we create not something that we have to learn. If schools changed slang into something that should be learned like a class it ruins the whole purpose of it. But I do feel teachers should learn the new generations slang to destroy misunderstandings and instead grow with their students more closely allowing the classrooms to feel like home instead of a boring learning environment. All in all, appropriate slang could be used to move students and society forward with the new generation if they take the time to learn and understand it.
+
+# March 3rd, 2025
+
+| Name      | Power | Challenge     |
+| :---        |    :----:   |          ---: |
+| Zara     | Telekinesis | Secure Building |
+| Aether   | Weather Manipulation | 	Prevent Assassination    |
+| Thorne | Invisibility | Underwater Rescue |
+| Silver | Mind Control | Retrieve Stolen Goods |
+| Tangier | Shapeshifting | Extract Prisoner |
