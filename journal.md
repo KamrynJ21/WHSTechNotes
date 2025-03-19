@@ -110,3 +110,7 @@ Technology could allow the language barriers of this and future generations to b
 | Thorne | Invisibility | Underwater Rescue |
 | Silver | Mind Control | Retrieve Stolen Goods |
 | Tangier | Shapeshifting | Extract Prisoner |
+
+# March 17th, 2025
+
+The technology I used the most often was my Ps5. The Ps5 provided entertainment throughout my spring break whether I wanted to watch Brooklyn 99, play games, or watch Youtube. My Ps5 allowed me to not become bored throughout my break. But it also provided some challenges because of technical difficulties whether that was glitches or my headset messing up, minor inconviences. The Ps5 reminds me of the for i loops, because everyday it was the same routine and I could expect the same outcomes for the most part unless I messed up coding via glitches in the software. App development also goes hand in hand because all throughout the break I was on different apps whether it was Tubi, Amazon Prime, Youtube, etc. Game development is also huge in the Ps5 because that's how you could play different games like 2k, Remant 2, etc. Coding is found in my day to day life and this is just a small part of it.
