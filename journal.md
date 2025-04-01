@@ -118,3 +118,7 @@ The technology I used the most often was my Ps5. The Ps5 provided entertainment 
 # March 24th, 2025
 
 For some people the AI predictions and AR take away from the experience and excitement of the game. Instead of watching the games and experiencing it first hand many have resolved to just using AI and betting on games instead of enjoying the game of basketball for what it is. Me personally I don't think it takes away from the excitement I just don't use it, because in the game of basketball anything can happen just like when the warriors blew a 3-1 lead after winning 73-9 games the unexpected can happen at anytime. Social media builds excitemnt and anticipation on the game, for me personally it gives me updates if i'm not able to watch the games myself. I believe social media is good for building the game but isn't good when it comes to criticizing players. The upcoming websites that stream the games I feel even though it's bad for the companies it's good foor the people because not everyone can afford the program that march madness streams on. All in all I believe we're headed in the right direction all we need now is cooper flagg to enter the NBA even if he's on a garbage team.
+
+# March 31st, 2025
+
+I'm feeling mellow about the rest of the year, obviously excited because I'm bout to graduate but the build up to it is boring and a hassle. Honestly I want to finish out the year with straight A's but other than that just wanna finish out the year strong.
