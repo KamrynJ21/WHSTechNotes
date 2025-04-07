@@ -122,3 +122,7 @@ For some people the AI predictions and AR take away from the experience and exci
 # March 31st, 2025
 
 I'm feeling mellow about the rest of the year, obviously excited because I'm bout to graduate but the build up to it is boring and a hassle. Honestly I want to finish out the year with straight A's but other than that just wanna finish out the year strong.
+
+# April 7th, 2025
+
+AI can help y ou stud by walking you through the steps of a problem of the STAAR level. You can ask them to give you a question and try to solve it, if you don't it'll teach you how to do it and if you do it'll give you another. Another way AI can help you is by giving you a concept frequently used in previous tests to practice what would actually be there and minimize the unecessary studying. The most important feature of an AI tutor would be the improvement on effiecient learning by only teaching what you need to know and scrapping the rest. Personally I might use AI tutoring here and there if I don't have a teacher but if I do I'm most likely not going to use it.
