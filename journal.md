@@ -130,3 +130,11 @@ AI can help y ou stud by walking you through the steps of a problem of the STAAR
 # April 14th, 2025
 
 While on the surface level banning the use of cell phones throughout the day seems beneficial it actually it going to be the opposite. Cell phones have become an essiential way to communicate in students as well as adults day to day life, whether it's for emergencies or to talk to your family every single day we need to use our cell phones. But I do agree that restricting social media might be more beneficial than harm because it's a distraction but at the same time it's also a major way to communicate with our peers and family if we don't have their numbers. Banning cell phones might bring more harm than good in productivity because if they can't be on their phones they might be more disruptive in person. Students might be more agitated, which is terrible, they might be less likely to work, but on the other hand some students would become more focused and productive in their work because you removed the distraction. If this was ever to be implemented in the school I believe it would be smarter to restrict the access to social media such as instagram and snapchat than to ban the use of cell phones all together.
+
+# April 28th, 2025
+
+| Name      | Flavor | Occasion| Price     |
+| :---        |    :----:   |          ---: |
+| Sally     | Chocolate| Graduation | $35.00 |
+| Michael   | Vanilla | Farewell Party	|$37.00    |
+| Emma | Carrot | Birthday |$39.00 |
