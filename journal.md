@@ -138,3 +138,7 @@ While on the surface level banning the use of cell phones throughout the day see
 | Sally     | Chocolate | Graduation | $35.00 |
 | Michael   | Vanilla | Farewell Party	|$37.00 |
 | Emma | Carrot | Birthday | $39.00 |
+
+# May 7th, 2025
+
+I believe the 100 men could win if all the men are athleteles if they are your average male I believe that the gorilla would win on the basis that athletes could win against the average male most of the time and the average male isnt that strong. I believe that it's responsible to make this challenge viral because it's just in good fun now if someone tried to set it up it would then be stupid. Stupid trends that are fun to think about and do spread online, and I believe that education and entertainment go hand in hand if you know what the average human enjoys in their life you could make your videos cater towards them. 
